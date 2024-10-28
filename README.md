@@ -6,9 +6,7 @@
 
 - Gosto de futebol ⚽️🦶
 
-- https://tenor.com/bZXiF.gif
-
-
+![](https://media1.tenor.com/m/xr-HJ_EtdggAAAAC/cr7eu-sou-melhor.gif)
 
 
 
